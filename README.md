@@ -8,7 +8,7 @@ Meu nome é Sophia Andrade Faria
 
 ### Você pode entrar em contato comigo 📫
 
-alurastartestudante@email.com
+malurastartestudante@email.com
 
 
 
